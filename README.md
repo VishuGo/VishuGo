@@ -1,5 +1,5 @@
 # Hi 👋, I'm Vishwas C R 🤵
-  BCA degree Student from India 🇮🇳 
+                                                                                                    BCA degree Student from India
 
 
 
