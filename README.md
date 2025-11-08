@@ -1,5 +1,6 @@
-# 💫 About Me:
-I'M a Data Analyst
+# Hi 👋, I'm Vishwas C R 🤵
+  BCA degree Student from India 🇮🇳 
+
 
 
 ## 🌐 Socials:
